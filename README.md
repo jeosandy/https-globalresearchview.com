@@ -1,0 +1,2 @@
+# https-globalresearchview.com
+ Global Research View is a market research and consulting firm which serves various industry segments. It was started by a group of industry veterans in the diverse fields of automation and aerospace, electronics and semiconductor, chemical industry, healthcare, energy, etc. A well-seasoned blend of technical and marketing expertise enables us to unearth big and small trends and insights in the global market using which we serve our customers to improve their economic value additions to their shareholders.
